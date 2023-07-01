@@ -1,0 +1,2 @@
+# Redmi10c
+Giusepp 
